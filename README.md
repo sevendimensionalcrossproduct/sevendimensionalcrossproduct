@@ -1,5 +1,4 @@
-De engelsen zullen ons niet vervangen 😡
-
+sacred geometry
 
 <!---
 sevendimensionalcrossproduct/sevendimensionalcrossproduct is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
